@@ -1,2 +1,2 @@
 # Odin-Landing-Page
-I Just Started The Project ❤️
+I Just Finished The Project ❤️
